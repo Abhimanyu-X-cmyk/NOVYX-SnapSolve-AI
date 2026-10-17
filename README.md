@@ -1,0 +1,1 @@
+# NOVYX-SnapSolve-AI
